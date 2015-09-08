@@ -1,3 +1,32 @@
+# Wed, Sep 9, 2015 at 12:19 AM
+
+Orrando,
+
+This doesn't sound at like your usual jovial self.
+
+When you say "I'm gonna be forced to close this ticket" it sounds as though you are under some duress.  Who is forcing you? What will they do to you if the ticket is not closed?
+
+Please let me know that you are OK.  If you are in danger then perhaps try to subtly include the code word "encephalitis" in your reply and I will know you need me to call the authorities.
+
+I worry about you.
+
+Take care,
+
+Mark.
+
+# Tue, Sep 8, 2015 at 8:39 PM
+
+Hi Mark,
+ 
+Thank you for getting in touch with Kobo Customer Care. I'm sorry to inform you that because I have already deemed the ticket as a physical damage I'm gonna be forced to close this ticket. If you have any other questions or concerns please contact Kobo Customer Care. It was my pleasure assisting you.
+ 
+Your reference number is "150812-000019"
+
+For general inquiries please visit us at http://www.kobo.com/help
+
+Sincerely,
+The Kobo Team
+
 # Fri, Sep 4, 2015 at 12:50 PM
 
 Hi Orrando,
